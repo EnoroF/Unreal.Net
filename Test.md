@@ -1,15 +1,13 @@
-各位亲爱的《大话外传新篇》网络游戏玩家：
+THE NEW FANTASY ACTION RPG.
 
-　　感谢您一直以来给予《大话外传新篇》网络游戏的支持与厚爱！由于业务发展上的调整，《大话外传新篇》网络游戏将于2015年12月31日0时终止运营。
+Rise, Tarnished, and be guided by grace to brandish the power of the Project W and become an Elden Lord in the Lands Between.
+• A Vast World Full of Excitement
+A vast world where open fields with a variety of situations and huge dungeons with complex and three-dimensional designs are seamlessly connected. As you explore, the joy of discovering unknown and overwhelming threats await you, leading to a high sense of accomplishment.
+• Create your Own Character
 
-　　为此，我们将于2015年12月31日0时关闭《大话外传新篇》网络游戏的服务器，届时起《大话外传新篇》网络游戏将不能登录、显示或运行。与此同时，我们也将关闭《大话外传新篇》网络游戏的官方网站(http://xdw.163.com)及官方游戏论坛(http://xdw.netease.com)，届时起上述网站将不能访问。
+In addition to customizing the appearance of your character, you can freely combine the weapons, armor, and magic that you equip. You can develop your character according to your play style, such as increasing your muscle strength to become a strong warrior, or mastering magic.
+• An Epic Drama Born from a Myth
+A multilayered story told in fragments. An epic drama in which the various thoughts of the characters intersect in the Lands Between.
+• Unique Online Play that Loosely Connects You to Others
 
-　　2015年6月23日14点后，《大话外传新篇》新玩家将无法登录《大话外传新篇》游戏，且游戏内会停止《大话外传新篇》藏宝阁的寄售和上架功能，现有玩家可在2015年6月23日维护后起至2015年12月31日0时期间继续登录《大话外传新篇》游戏，该期间《大话外传新篇》将停止收费，（即：停止《大话外传新篇》游戏内通用点兑换金叶子功能）。2015年8月24日24时我们将关闭《大话外传新篇》藏宝阁网站（http://xdw.cbg.163.com/），届时该网站将不能访问。
-
-　　为答谢多年来一直支持《大话外传新篇》游戏的广大玩家，我们还推出了相应的优惠方案（见附件），希望各位能继续在网易的大家庭中欢享快乐生活。以上所述，还请您周知并相互转告，如有任何疑义，请随时与我们的客服联系。(客服专区地址：http://xdw.gm.163.com)
-
-　　我们跟您一样对于《大话外传新篇》网络游戏有着难以割舍的情感，同时也对此次终止运营给您造成的不便深表歉意！我们十分感谢您的理解和原谅，也衷心期待您继续支持和关注网易旗下更多优秀产品！
-
-网易公司
-
-2015.6.23
+In addition to multiplayer, where you can directly connect with other players and travel together, the game supports a unique asynchronous online element that allows you to feel the presence of others. 
